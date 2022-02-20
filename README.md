@@ -1,1 +1,1 @@
-# pizza
+Préparer une pâte à pizza peut être difficile quand on n'a pas le matériel nécessaire ou la bonne recette. Il existe de nombreux blog ou site web qui vous donneront toutes les informations à prendre en compte pour réussir votre pâte à pizza de façon simple et rapide. Il existe en effet une grande variété de pâte à pizza qui ont pour la plupart, le même processus de préparation.
